@@ -2,4 +2,4 @@
 
 ## Comics
 
-* [This morning](http://notinventedhe.re/on/2010-4-20)
+[This morning](http://notinventedhe.re/on/2010-4-20)
